@@ -9,5 +9,5 @@ Whether you're here to collaborate, give feedback, or just explore — welcome, 
 
 ## 📫 Contact Me
 - Email: ritishanegi19@gmail.com
-- LinkedIn: [your LinkedIn]
+- LinkedIn:[ritisha negi](www.linkedin.com/in/ritishanegi)
 
