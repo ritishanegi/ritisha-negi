@@ -1,2 +1,0 @@
-# ritisha-negi
-
